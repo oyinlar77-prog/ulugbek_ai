@@ -1,1 +1,0 @@
-# ulugbek_ai
